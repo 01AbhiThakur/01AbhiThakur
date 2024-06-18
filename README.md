@@ -16,6 +16,4 @@ Extracurricular Activities
 Career Aspirations
 🔍 Eager to apply my electronics expertise and entrepreneurial mindset to drive impactful innovations
 🌍 Committed to leveraging technology for sustainable solutions and positive societal impact
-Connect with Me
-📧 Feel free to reach out via abhishej20110029356@gmail.com
-🔗 Connect on LinkedIn 
+ 
